@@ -8,7 +8,7 @@
 
 ### Education 📑
 
-I am currently a student at Arizona State University. I am majoring in Technical Communication (User Experience). I am minoring in Human Systems Engineering. After graduating with my bachelors and minor, I plan to further my education and obtain a Masters in User Experience. My career goal is becoming a web designer and a technical writer. 
+I am currently a student at Arizona State University. I am majoring in Technical Communication (User Experience). I am minoring in Human Systems Engineering. After graduating with my bachelors and minor, I plan to further my education and obtain a Masters in User Experience. My career goal is becoming a web designer. 
 
 ### Hobbies 🪗
 
